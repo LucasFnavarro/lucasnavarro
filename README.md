@@ -1,4 +1,3 @@
 ## Olá, eu sou o Lucas Felipe 🖐️ 
-Estudante de analise e desenvolvimento de sistemas, apaixonado pela tecnolog .
-
+Estudante de Analise e Desen de sistemas, apaixonado pela tecnologia!
 
